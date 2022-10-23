@@ -1,0 +1,1 @@
+Drugi tydzień kursu MegaK.
